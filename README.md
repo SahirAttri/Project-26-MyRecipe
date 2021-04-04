@@ -1,0 +1,1 @@
+Homemade strawberry lemonade is a simple yet refreshing combination of fresh strawberries, lemon juice, and sugar. It is considered both healthy and tasty. Usually prefered in summers.
